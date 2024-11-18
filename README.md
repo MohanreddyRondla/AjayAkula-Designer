@@ -1,1 +1,0 @@
-# AjayAkula-Designer
